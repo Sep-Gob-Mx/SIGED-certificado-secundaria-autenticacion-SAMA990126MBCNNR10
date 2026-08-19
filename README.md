@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SAMA990126MBCNNR10
+SAMA990126MBCNNR10
